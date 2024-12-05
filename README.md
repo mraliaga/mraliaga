@@ -10,3 +10,13 @@
 
 📫 How can you reach me mraliaga@gmail.com
 
+🌐 Languages I Speak:
+
+Russian🌕🌕🌕🌕🌑
+
+Turkish🌝🌝🌝🌜🌚
+
+English🌕🌕🌕🌘🌑
+
+German🌕🌕🌕🌑🌑
+
