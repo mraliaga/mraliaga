@@ -20,3 +20,9 @@ English🌕🌕🌕🌘🌑
 
 German🌕🌕🌕🌑🌑
 
+<img width="1470" alt="Screenshot 2024-12-15 at 15 37 54" src="https://github.com/user-attachments/assets/f7f59eb9-5a86-42f9-a398-4bdccbb109b2" />
+
+
+
+
+
