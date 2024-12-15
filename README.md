@@ -20,7 +20,8 @@ English🌕🌕🌕🌘🌑
 
 German🌕🌕🌕🌑🌑
 
-<img width="579" alt="Screenshot 2024-12-15 at 18 16 09" src="https://github.com/user-attachments/assets/ed14c449-81ef-42c8-96e4-72cd40149772" />
+<img width="587" alt="Screenshot 2024-12-15 at 18 19 11" src="https://github.com/user-attachments/assets/6a7943af-e767-43c9-b77b-5233ddebda85" />
+
 
 
 
